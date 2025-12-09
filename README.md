@@ -32,7 +32,7 @@ Click on the folders above to view individual works. Each document is formatted 
 ---
 
 ## 🔗 Contact
-Feel free to connect with me on LinkedIn or reach out via email: **your.email@example.com**.
+Feel free to connect with me on LinkedIn or reach out via email: **Bikerman1986@icloud.com**.
 
 ---
 
